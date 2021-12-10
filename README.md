@@ -7,3 +7,13 @@
 <!---
 bulletpr00f/bulletpr00f is ✨ special ✨ 
 --->
+
+#Favorite Links
+
+##Mental Health
+
+##Research
+
+###Earth
+
+###Space
