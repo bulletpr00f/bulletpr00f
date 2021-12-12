@@ -1,3 +1,5 @@
+For more information on my services and how to get in touch with me, please visit [ToF](https://bulletpr00f.github.io/torrents_of_fury/).
+
 - 👋 Hi, I’m @bulletpr00f
 - 👀 I’m interested in art, animation, 2D, 3D, board games, AR, and VR
 - 🌱 I’m currently learning about Earth History
